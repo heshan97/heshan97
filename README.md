@@ -15,7 +15,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.behance.net/heshanwimarsha](https://www.behance.net/heshanwimarsha)
 
-- 📫 How to reach me **heshanw2018@g,ail.com**
+- 📫 How to reach me **heshanw2018@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
